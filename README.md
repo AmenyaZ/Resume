@@ -3,6 +3,7 @@
 **Email:** amenyazac@gmail.com
 **Contact:** 0700-322-829
 
+
 ## PROFESSIONAL SUMMARY
 Innovative Mobile Developer and Results-Driven Project Manager with over 3 years of transformative experience across software development and mobile solutions. A technophile at heart, I seamlessly blend technical prowess with a strategic mindset to lead cross-functional teams towards visionary project outcomes. From crafting cutting-edge mobile apps to steering agile methodologies, I'm dedicated to delivering excellence that exceeds expectations. Fuelled by a passion for progress, I'm ready to harness my mobile expertise and project leadership to drive your next success story.
 
