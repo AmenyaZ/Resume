@@ -1,6 +1,6 @@
 # ZACCHEAUS AMENYA
-**LinkedIn:** [Zaccheaus Amenya](https://www.linkedin.com/in/zaccheaus-amenya/)
-**Email:** amenyazac@gmail.com
+**LinkedIn:** [Zaccheaus Amenya](https://www.linkedin.com/in/zaccheaus-amenya/)  
+**Email:** amenyazac@gmail.com  
 **Contact:** 0700-322-829
 
 
